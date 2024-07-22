@@ -1,6 +1,4 @@
 
-- 👨‍💻 All Projects:
-
 - 📫 How to reach me: **nilakanthaburagohain43@gmail.com**
 
 
